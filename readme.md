@@ -1,0 +1,4 @@
+recipe pan cake
+
+A pancakee is a flat cake, often thin and round, prepared from a starch-based batter that may contain eggs, milk and butter and cooked on a hot surface such as a griddle or frying pan, often frying with oil or butter. Archaeological evidence suggests that pancakes were probably the earliest and most widespread cereal food eaten in prehistoric societies.
+Pancakes may be served at any time of the day or year with a variety of toppings or fillings, but they have developed associations with particular times and toppings in different regions. In North America, they are typically considered a breakfast food and serve a similar function to waffles. In Britain and the Commonwealth, they are associated with Shrove Tuesday, commonly known as "Pancake Day", when, historically, perishable ingredients had to be used up before the fasting period of Lent.
